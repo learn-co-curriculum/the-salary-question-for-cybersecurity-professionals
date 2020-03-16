@@ -38,7 +38,7 @@ Talking about salary can be a personal or sensitive topic for some people. Make 
 
 Although it’s highly personal, it’s important to be able to discuss compensation directly and graciously.  As with the rest of the interview process, you are demonstrating what it is like to work with you, and this is representative of how you communicate and interact with others. The more you practice talking about this topic, the more comfortable you become since this trips up a lot of people.
 
-## Resources
+
 
 
 
